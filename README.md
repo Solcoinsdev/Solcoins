@@ -69,7 +69,7 @@ The ultimate proof that anything can become valuable if it generates real income
 ## Links
 
 **Twitter**: [https://x.com/SCOINS_ART](https://x.com/SCOINS_ART)  
-**Website**: [https://solcoins.art/](https://solcoins.art/)
+**Website**: [https://slcns.art/](https://slcns.art/)
 
 ---
 
